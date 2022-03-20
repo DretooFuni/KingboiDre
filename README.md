@@ -1,6 +1,8 @@
-- 👋 Hi, I’m @KingboiDre
-- 👀 I’m interested in Acting, Music, Marine Biology and Coding
-- 🌱 I’m currently learning PHP
-- 💞️ Discord @KingboiDre#1000
+- 👋 Hi.
+- 👀 I’m interested in Marine Biology and Coding
+- 🌱 I’m currently learning HTML
+- 😎 Pmmp noob Dev
+- 👁️ Discord @Dre#0268
 
 I'm friendly :D
+*I'm actually not.*
