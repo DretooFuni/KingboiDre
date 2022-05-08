@@ -1,8 +1,2 @@
-- 👋 Hi.
-- 👀 I’m interested in Marine Biology and Coding
-- 🌱 I’m currently learning HTML
-- 😎 Pmmp noob Dev
-- 👁️ Discord @Dre#0268
-
-I'm friendly :D
-*I'm actually not.*
+OMG NOTHING HERE TO READ.
+(Wut did I do to make you click this? I don't mind you dming me btw, we can settle this.)
